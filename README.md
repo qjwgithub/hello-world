@@ -1,2 +1,2 @@
 # hello-world
-just  a  lianxi
+bian ji  fenzhi  xinxi 
